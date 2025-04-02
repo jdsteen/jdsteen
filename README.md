@@ -1,0 +1,3 @@
+the weak shall quiver when a nice guy gets angry...
+
+- joe sizl, 2023
