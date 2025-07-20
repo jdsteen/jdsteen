@@ -1,3 +1,3 @@
-the weak shall quiver when a nice guy gets angry...
-
-- joe sizl, 2023
+Cambridge AS + A Level Student
+Wanting to study Cybersecurity / Netsecurity
+Actor, philanthropist
